@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @effreak
 - 👀 I’m interested in computer technologies
-- 🌱 I’m currently learning at vellore institute of technology
+- 🌱 I’m graduate from  vellore institute of technology India.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
