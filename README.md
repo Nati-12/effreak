@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @effreak
+- 👋 Hi, I’m @Ephrem(Nati)
 - 👀 I’m interested in computer technologies
-- 🌱 I’m graduate from  vellore institute of technology India.
+- 🌱 I’m a graduate from  vellore institute of technology India.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
